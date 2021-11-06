@@ -9,6 +9,7 @@
 
 * Interesting large ice cube trays
 * Calvit's Shrubs
+* [Norssemen Rustic Mugs](https://northwrist.com/collections/new-in/products/norsemen-rustic-mug)
 
 ## Woodworking
 
