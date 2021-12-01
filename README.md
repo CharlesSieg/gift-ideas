@@ -4,7 +4,7 @@
 
 * Cufflinks. I like clever cufflinks. My favorite pair are from my mom and are two Scrabble tiles each with one of my initials, "C" and "S".
 
-* Pocket squares. Clean, elegant. ![I like Roger Sterling's look](https://media1.popsugar-assets.com/files/thumbor/9sJCXauBbEcBijY2v3OGYuvZjZ0/fit-in/1024x1024/filters:format_auto-!!-:strip_icc-!!-/2012/03/12/1/192/1922283/83d0a0ddf7b80b58_roger/i/Roger-Sterling.jpg).
+* Pocket squares. Clean, elegant. ![I like Roger Sterling's look.](https://media1.popsugar-assets.com/files/thumbor/9sJCXauBbEcBijY2v3OGYuvZjZ0/fit-in/1024x1024/filters:format_auto-!!-:strip_icc-!!-/2012/03/12/1/192/1922283/83d0a0ddf7b80b58_roger/i/Roger-Sterling.jpg) Not that season where he had a mustache, though. Not good.
 
 
 
