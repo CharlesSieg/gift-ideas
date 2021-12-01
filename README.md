@@ -2,7 +2,8 @@
 
 ## Clothing-Related
 
-* Cufflinks
+* Cufflinks. I like clever cufflinks. My favorite pair are from my mom and are two Scrabble tiles each with one of my initials, "C" and "S".
+
 * Pocket squares
 
 ## Bar-Related
