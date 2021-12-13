@@ -24,6 +24,11 @@ Not that season where he had a mustache, though. Not good.
 * [WILLIAM GIBSON: Neuromancer, A Signed Edition](https://www.eastonpress.com/signed-editions/william-gibson-neuromancer-a-signed-edition-3120.html)
 
 
+## Lego
+
+* [Lego World Map[(https://www.amazon.com/LEGO-Meaningful-Collectible-Enthusiasts-695-Pieces/dp/B08YP6XRP1)
+
+
 ## Vehicle-Related
 
 * Porsche clothing, etc.
