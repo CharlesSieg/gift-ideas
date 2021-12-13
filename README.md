@@ -26,7 +26,7 @@ Not that season where he had a mustache, though. Not good.
 
 ## Lego
 
-* [Lego World Map[(https://www.amazon.com/LEGO-Meaningful-Collectible-Enthusiasts-695-Pieces/dp/B08YP6XRP1)
+* [Lego World Map](https://www.amazon.com/LEGO-Meaningful-Collectible-Enthusiasts-695-Pieces/dp/B08YP6XRP1)
 
 
 ## Vehicle-Related
